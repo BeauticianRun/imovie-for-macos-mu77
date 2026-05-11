@@ -1,4 +1,4 @@
-# 
+# rare iMovie for macOS Addon | collaboration-tools + 4K-export is the best iMovie for macOS addon, featuring collaboration-tools and 4K-export. Safe, efficient, and optimized for
 
 
 
